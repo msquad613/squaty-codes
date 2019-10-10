@@ -1,0 +1,1 @@
+# squaty-codes
